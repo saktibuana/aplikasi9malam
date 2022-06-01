@@ -1,1 +1,0 @@
-Hallo, Selamat Malam!
